@@ -1,0 +1,92 @@
+# Limp Bizkit – シャーク・アタック
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Another one of those days
+Feelin like a shovel
+With a lot of shit in the way
+Gonna clear me a path
+Right to the culprit
+Straight to your fucked up ass
+This ain't about rage
+It's about disrespect
+You should've thought about that (punk)
+Before your trap went flap
+Homie what the deal
+Why you talkin shit like that (why)
+I've had enough drama
+I don't need a chump
+Talkin that trash in pajamas
+Heated up like a sauna
+Time to pay the piper
+I ain't givin hope like Obama (nope)
+I'm spittin out flames
+Better hit he deck
+I'm a mic check them games (yeah)
+You don't need a new coach
+You need a new neck
+Once I connect with your throat
+Still shockin like a heart attack
+Cuz I'm a maniac (cuz I'm a maniac)
+Still runnin through the shark attack
+Without a single scratch
+(without a single scratch)
+Still livin where the dark is at
+Up in my braniac (up in my braniac)
+Still bitin while you're barkin back
+So you can shut your trap
+Check one two
+I ain't even through
+Givin you grief
+Put another stain on your teeth (yeah)
+Back up on your feet
+Call in the rescue
+Better get the whole damn fleet (damn fleet)
+This attack ain't stealth
+It's worldwide homicide
+Bad for your health (what)
+I'm going straight for your gut
+Closing them eyes
+Sewin them lids straight shut (blind)
+Go ahead put it on me
+Show me what you got
+While you get robbed like a zombie
+It's the one man army
+Puff puff give
+Watch'em get smoked like a cig (smoked)
+You hear of Freddy Krueger
+I'm kinda like that
+With a red cap and a rueger (punk)
+Still slingin it to ya
+Microphone hustler
+Bad mother fucker... screw ya
+Still shockin like a heart attack
+Cuz I'm a maniac (cuz I'm a maniac)
+Still runnin through the shark attack
+Without a single scratch
+(without a single scratch)
+Still livin where the dark is at
+Up in my braniac (up in my braniac)
+Still bitin while you're barkin back
+So you can shut your trap
+Shut it down... shut it down...
+Swimming with... sharks ain't easy
+They just want... to kill and eat me
+I ain't gonna... let that happen
+Watch me plan... my shark attack and
+Make them wish... they never knew me
+Turn their great... white ass to sushi
+This is my... old school technique
+It's all I need... to leave in one piece (yeah)
+Still shockin like a heart attack
+Cuz I'm a maniac (cuz I'm a maniac)
+Still runnin through the shark attack
+Without a single scratch
+(without a single scratch)
+Still livin where the dark is at
+Up in my braniac (up in my braniac)
+Still bitin while you're barkin back
+So you can shut your trap
+Shut it down... Shut it down
+```
