@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "シャーク・アタック",
+  "base_artist": "Limp Bizkit",
+  "createdAt": "2026-02-18T14:34:02.354999Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Shark Attack",
+      "artist": "Limp Bizkit",
+      "has_synced": false,
+      "path": "select/pl_01_Shark_Attack_Limp_Bizkit.txt"
+    }
+  ]
+}
